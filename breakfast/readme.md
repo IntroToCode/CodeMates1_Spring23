@@ -1,6 +1,6 @@
 # Easy Breakfast Tacos
 
-## Servings: 
+## Servings: 4 servings
 
 ## Time to prepare: 
 
