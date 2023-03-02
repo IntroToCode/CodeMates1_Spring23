@@ -2,7 +2,7 @@
 
 ## Servings: 4 servings
 
-## Time to prepare: 
+## Time to prepare: 30 minutes
 
 ## Ingredients:
 
