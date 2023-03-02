@@ -1,6 +1,6 @@
 # Lasagna
 
-## Servings: 
+## Servings: 8 servings
 
 ## Time to prepare: 
 
