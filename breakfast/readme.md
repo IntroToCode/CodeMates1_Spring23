@@ -5,12 +5,12 @@
 ## Time to prepare: 
 
 ## Ingredients:
-Bacon
-Eggs, scrambled
-Onion, diced
-Avocado
-Cotija Cheese
-Cilantro
+Bacon,
+Eggs (scrambled),
+Onion (diced),
+Avocado,
+Cotija Cheese,
+Cilantro,
 Tortilla (corn)
 
 ## Equipment needed:
