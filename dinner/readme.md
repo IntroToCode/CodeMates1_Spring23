@@ -39,7 +39,12 @@
 
 
 ## Equipment needed:
-
+1) Enameled Baking Dish
+2) Box Grater
+3) Stockpot
+4) Small Offset Spatula
+5) Serving Spatula
+6) Oven Mitts
 
 ## Steps for preparation:
 
