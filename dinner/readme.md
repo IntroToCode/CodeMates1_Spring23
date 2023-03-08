@@ -47,7 +47,14 @@
 6) Oven Mitts
 
 ## Steps for preparation:
-
+1.Put pasta water on to boil:
+2.Brown the ground beef:
+3.Cook the bell pepper, onions, and garlic; add back the beef:
+4.Make the sauce:
+5.Boil and drain the lasagna noodles:
+6.Preheat the oven to 375°F.
+7.Assemble the Lasagna
+8.Bake and enjoy.
 
 
 ### Notes:
